@@ -1,42 +1,35 @@
-your_text (1)
-FOLLOWUSPLEASE
-your_text (1)
-Typing SVG
-𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
+Hi 👋, I'm KaGuYa Kall
+Be Aware Be Safe !
+Coding
+
+
+codegrills
+
+👯 I’m looking to collaborate on Cyber Security Projects
+
+👨‍💻 All of my projects are available at https://kaguya.in
+
+📝 I regularly write articles on blog.kaguya.in
+
+💬 Ask me about Cyber Security,Ethical Hacking, Bug Hunting
+
+📫 How to reach me gamingrollex5@gmail.com
+
+⚡ Fun fact I Think i am Funny
+
+Connect with me:
+codegrills company/KaGuYa Kall KaGuYa Kall KaGuYa Kall KaGuYa Kall
+
+Languages and Tools:
+amplify android appwrite arduino aws bash blender c css3 django docker dotnet figma firebase gcp git heroku html5 illustrator javascript linux mongodb mssql mysql oracle photoshop php postman python selenium sketch unity unreal
+
+Support:
+KaGuYa Kall
 
 
 
+KaGuYa Kall
 
+ KaGuYa Kall
 
-
-
-🏆 Github Statistics :
-trophy
-
-
-🔰 𝐍𝐀𝐌𝐄 :- KAGUYA URF ELIISHA 🔥
-
-🔰 𝐀𝐆𝐄 :- 22 🔥
-
-🔰 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍 :- DIPLOMA IN ENGINEERING 🥵
-
-🔰 𝐋𝐎𝐕𝐄𝐑 :- PYTHON AND JAVA 🌞
-
-🔰 𝐑𝐄𝐋𝐈𝐆𝐈𝐎𝐍 :- ISLAM 🖤
-
-🔰 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 :- Kaguya Urf Eliisha Kai 🌚
-
-🔰 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄 :- NOT USE PAGE 📄 🌚
-
-🔰 𝐆𝐈𝐓𝐇𝐔𝐁 :- KaGuYa-Exo 💤
-
-KAGUYA URF ELIISHA KAI's GitHub stats	Top Languages
-KaGuYa-Exo's GitHub Readme Streak Stats
-
-PROFILE VISITORS
-
-
-
-your_text (1)
-THANKSCHEERSANDE
-your_text (1)
+KaGuYa Kall
